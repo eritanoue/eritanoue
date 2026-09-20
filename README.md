@@ -1,4 +1,4 @@
-## <div align="center">  ✧ ‿︵ i'm eris. welcome to my gitHub profile!  ࣪ ⊹ ⏜ ۫ . </div>
+## <div align="center">  ✧ ‿︵ i'm eris. welcome to my github profile!  ࣪ ⊹ ⏜ ۫ . </div>
 
 
 
